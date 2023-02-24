@@ -1,1 +1,1 @@
-# johnaminpersonalportfolio.com
+# johnaminportfolio.com
